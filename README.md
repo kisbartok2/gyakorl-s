@@ -1,1 +1,1 @@
-# gyakorl-s
+# gyakorlás
